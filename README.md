@@ -1,3 +1,4 @@
+![Banner](./images/PurpleSky.jpg)
 # **Willkommen auf meinem Profil**
 ## **📜Über mich:** Professional CsGo Player & Furry :3
 
